@@ -1,7 +1,7 @@
 # **Andrew Edelmann**
 
 (437) 606-3657 • [andrew.edelmann@outlook.com](mailto:andrew.edelmann@outlook.com) • [linkedin.com/in/andrew-edelmann-5a64a1186](https://www.linkedin.com/in/andrew-edelmann-5a64a1186/)  
-Hi\! I am a student at UofT I’m looking for a job for the summer. I work best in environments with lots of feedback, and my ideal job emphasizes lots of communication with colleagues and clients. I thrive on and opportunities to problem solve, lead, and learn about Toronto’s communities and businesses. I aim to work full time from June until September, and will consider continuing part-time afterwards. As you can see below, I have experience with teaching, customer service and urban-agriculture experience. If you or someone you know is hiring this summer, please feel free to contact me.
+Hi\! I am a student at UofT, and I’m looking for a job in Downtown Toronto from June to September. I work best in environments with lots of feedback, and my ideal job emphasizes lots of communication with colleagues and with clients. I thrive on opportunities to problem solve, lead, and learn about Toronto’s communities and businesses. I aim to work full time from June until September, and will consider continuing part-time afterwards. As you can see below, I have experience with teaching, customer service and urban-agriculture experience. If you or someone you know is hiring this summer, please free to reach out by phone, text or email.
 
 # EDUCATION
 
