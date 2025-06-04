@@ -1,4 +1,8 @@
-# I heard on the radio today that Canada needs to build 3.5 million homes in the next 5 years. Apparantly, that's in addition to what we would already have to build to keep up with normal demand. Politicians seem concerned about that, which leads me to believe we may not be in a great position to build the necessary number of homes.
+# What's wrong with linearity?
+AJE
+
+
+I heard on the radio today that Canada needs to build 3.5 million homes in the next 5 years. Apparantly, that's in addition to what we would already have to build to keep up with normal demand. Politicians seem concerned about that, which leads me to believe we may not be in a great position to build the necessary number of homes.
 
 When I was a kid, I loved building forts. I seized any opportunity I had to make structures in the forest, sometimes employing my friends and cousins in the process. When I was nine  my family moved to Manhattan, where few opportunities for fort-building arise. I directed that energy towards drawing sketches of structures. I  was always driven primarily by geometry; I felt that there were other geometric languages that could systematically surpass conventional buildings in such factors as cost, natural light, and environmental footprint.
 
